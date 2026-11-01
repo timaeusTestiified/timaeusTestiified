@@ -1,4 +1,5 @@
 <p align="center"> <img src="https://64.media.tumblr.com/c3d7ccdf2cc472149c7a597decdcd86a/1061ec6fbe4348ea-7d/s2048x3072/4a28068391d09fa1dfefb18380d6c07740c243ce.pnj" />
+<img width="650" height="450" alt="image" src="https://github.com/user-attachments/assets/4633c843-964d-46d8-88a7-7e2aadd66cce" />
 
 <p align="center">  　‎　‎   　‎　‎  <img height="200" src="https://64.media.tumblr.com/fd213874cddab801d3ef2bc75e777c40/c4ec8774269f4d68-cc/s2048x3072/888389ad02f4f1e97e79f36c9501c22565710a42.pnj" />
 
